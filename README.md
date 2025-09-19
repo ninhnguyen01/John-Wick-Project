@@ -1,2 +1,3 @@
 # John-Wick-Project
-A retired hit man is forced back into the underground world of assassins.
+
+The franchise by Lionsgate inspired me to try combat sport. For me, it was Judo.
